@@ -1,2 +1,2 @@
 # restr
-https://alexanderms00.github.io/restr/
+https://Vladislavms2002.github.io/restr/
